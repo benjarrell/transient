@@ -1,4 +1,4 @@
-# Proposition Infinity
+# The Route of All Evil
 You mean while I'm sleeping in it? I am the man with no name, Zapp Brannigan! They're like sex, except I'm having them! That's a popular name today. Little "e", big "B"? It doesn't look so shiny to me. Hello, little man. I will destroy you!
 
 ## Proposition Infinity
